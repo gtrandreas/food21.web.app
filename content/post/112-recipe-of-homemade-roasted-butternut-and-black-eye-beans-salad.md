@@ -1,0 +1,91 @@
+---
+description: "Recipe of Homemade Roasted butternut and black eye beans salad"
+title: "Recipe of Homemade Roasted butternut and black eye beans salad"
+slug: 112-recipe-of-homemade-roasted-butternut-and-black-eye-beans-salad
+date: 2020-08-19T03:40:01.655Z
+image: https://img-global.cpcdn.com/recipes/a0de1ea67a652c28/751x532cq70/roasted-butternut-and-black-eye-beans-salad-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/a0de1ea67a652c28/751x532cq70/roasted-butternut-and-black-eye-beans-salad-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/a0de1ea67a652c28/751x532cq70/roasted-butternut-and-black-eye-beans-salad-recipe-main-photo.jpg
+author: William Foster
+ratingvalue: 3.1
+reviewcount: 10
+recipeingredient:
+- "1 cup black eye beans"
+- "2 small butternut"
+- "1/4 cup cucumber"
+- "1/4 cup feta cheese"
+- "1/2 red onion"
+- "1/2 avocado"
+- "2 tablespoons lime juice"
+- "1 tablespoon coconut oil"
+- "1 spring onion"
+- "1 tablespoon soy sauce"
+recipeinstructions:
+- "Boil 1 cup of black eye beans until tender. (I soaked mine overnight to reduce to reduce the boiling time)"
+- "Cut butternut into small pieces, drizzle with olive oil, salt and pepper and put in oven for about 20min or until tender"
+- "For the dressing mix lime juice, coconut oil and soy sauce."
+- "In a separate pan, sautee red onion in olive oil for about 3 minutes."
+- "Once the beans and butternut are cooked, mix everything in a bowl then add feta cheese, chopped spring onion and avocado."
+- "Enjoy"
+categories:
+- Recipe
+tags:
+- roasted
+- butternut
+- and
+
+katakunci: roasted butternut and 
+nutrition: 293 calories
+recipecuisine: American
+preptime: "PT17M"
+cooktime: "PT37M"
+recipeyield: "4"
+recipecategory: Lunch
+
+---
+
+
+![Roasted butternut and black eye beans salad](https://img-global.cpcdn.com/recipes/a0de1ea67a652c28/751x532cq70/roasted-butternut-and-black-eye-beans-salad-recipe-main-photo.jpg)
+
+Hey everyone, it's Brad, welcome to my recipe page. Today, we're going to prepare a distinctive dish, roasted butternut and black eye beans salad. One of my favorites food recipes. For mine, I'm gonna make it a bit tasty. This will be really delicious.
+
+Sprinkle evenly with nuts and This was a bit bland given all the awesome reviews. The roasted squash was yummy, especially with. This Roasted Butternut Squash Salad is a once a week kinda thing in our home.
+
+Roasted butternut and black eye beans salad is one of the most well liked of current trending foods in the world. It's enjoyed by millions daily. It is simple, it is fast, it tastes delicious. They're fine and they look wonderful. Roasted butternut and black eye beans salad is something that I've loved my entire life.
+
+
+To get started with this recipe, we have to first prepare a few ingredients. You can have roasted butternut and black eye beans salad using 10 ingredients and 6 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Roasted butternut and black eye beans salad:
+
+1. Take 1 cup black eye beans
+1. Take 2 small butternut
+1. Take 1/4 cup cucumber
+1. Take 1/4 cup feta cheese
+1. Make ready 1/2 red onion
+1. Take 1/2 avocado
+1. Take 2 tablespoons lime juice
+1. Prepare 1 tablespoon coconut oil
+1. Get 1 spring onion
+1. Prepare 1 tablespoon soy sauce
+
+
+And a simple recipe is on blog today: Roasted Butternut Squash and Black Bean Enchiladas. What I love about the filling for this recipe with butternut is that you can add any flavor of beans to the mixture, eat it by itself, with cheese on top (for a low-carb meal), toss it in with a salad, or make. Roasted Butternut Squash Salad With Tahini Vinaigrette. Your taste buds will thank you for this fresh, delicious squash recipe. 
+
+<!--inarticleads2-->
+
+##### Steps to make Roasted butternut and black eye beans salad:
+
+1. Boil 1 cup of black eye beans until tender. (I soaked mine overnight to reduce to reduce the boiling time)
+1. Cut butternut into small pieces, drizzle with olive oil, salt and pepper and put in oven for about 20min or until tender
+1. For the dressing mix lime juice, coconut oil and soy sauce.
+1. In a separate pan, sautee red onion in olive oil for about 3 minutes.
+1. Once the beans and butternut are cooked, mix everything in a bowl then add feta cheese, chopped spring onion and avocado.
+1. Enjoy
+
+
+Start by roasting butternut squash slices - don&#39;t be intimidated, they&#39;re so easy to prepare - and onions, drizzled with olive oil and sprinkled with salt and. These Roasted Butternut Squash Tacos are a great seasonal spin on your traditional taco. They&#39;re great for an easy weeknight dinner! I usually use sweet potato, but I also love butternut squash and it&#39;s perfectly in season right now and it&#39;s just as delicious in these tacos! This vibrant Persian side salad is studded with dried fruit, nuts and seeds and finished with crumbled feta - ideal to take along to a Christmas buffet. 
+
+So that's going to wrap this up with this exceptional food roasted butternut and black eye beans salad recipe. Thanks so much for your time. I'm sure that you will make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!
